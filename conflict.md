@@ -1,1 +1,1 @@
-Eile sõin hommikuks omletti paprikaga, päris maitsev oli. Täna sõin hommikusööki.
+Eile sõin hommikuks omletti paprikaga ja seentega, päris maitsev oli. Täna sõin hommikusööki.
